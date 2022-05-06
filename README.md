@@ -1,0 +1,6 @@
+- 👋 Faaaala!, Eu sou Zeca
+- 👀 Muito interessado em programação e novas tecnologias
+- 🌱 Atualmente estou estudando atuação com raspagem de dados
+- 💞️ Pretendo me envolver com atuações dentro do GitHUb
+- 📫 Para me contactar chama no jperezdesenvolvimento@gmail.com ou por aqui mesmo...
+- Abração!!!!
